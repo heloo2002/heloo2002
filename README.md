@@ -7,4 +7,4 @@ Adoro usar o computador
 Estou ansiosa para aprender a usar o github
 
 Você pode entrar em contato comigo 📫
-email: alurastartestudante@email.com
+email: 00001087332084sp@al.educacao.sp.gov.br
